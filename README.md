@@ -24,6 +24,6 @@ This really is the last time you will ever hear from me. That's a promise on my 
 Don't fuck it up with her and don't stress on our friendship.
 Some friendships are meant to end for personal growth.
 This was last bit of negativity and toxicity I needed to get out of my life.
-Not going to regret a single bit.
+Not going to regret it a single bit.
 Goodbye brotherrrr and don't forget I'm older.
 That makes you my son.
