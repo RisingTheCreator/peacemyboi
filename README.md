@@ -10,6 +10,8 @@ You can't pin messages, edit your bio or whatever else.
 Closing your dm means your profile lost forever from me unless you add me back.
 I blocked you so that's not possible.
 Call me crazy or whatever but I have never been more in tune with myself.
+This is not a mental breakdown or anything. 
+I legit think we just shouldn't be friends.
 I've been contemplating on this but that comment was all I needed to hear.
 Tell zeus I said sorry though for whatever I did. 
 Still confused about that lmao. 
